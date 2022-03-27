@@ -3,7 +3,7 @@
 
 ### 订阅地址短链接：
 
-**clash**：https://suo.yt/HAGn714
+**clash**：https://suo.yt/6v9yCfj
 
 **v2ray**：https://suo.yt/oOhq7ZM
 
